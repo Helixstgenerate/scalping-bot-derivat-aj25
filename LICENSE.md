@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant scalping bot for derivatives Module | futures-arbitrage + auto-leverage, the #1 scalping bot for derivatives. Includes futures-arbitrage and
 
 
 
